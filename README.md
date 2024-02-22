@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @swaemick
 - 👀 I’m interested in 3d art
-- 🌱 I’m currently learning 3d modeling and animation
+- 🌱 I’m a professional 3d modeler with 3 years experience using blender 
 - 💞️ I’m looking to collaborate on anything related to 3d art
 - 📫 How to reach me https://www.artstation.com/swaemick
 
